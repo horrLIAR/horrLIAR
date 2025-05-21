@@ -13,7 +13,7 @@ hallo!!! ^^
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀───────•••───────
 
-⠀⠀●⠀★ main fandoms: persona 5, alnst, station saihate, ensemble stars, hsr ⚟
+⠀⠀●⠀★ main fandoms: persona 5, alnst, station saihate, ensemble stars, hsr, ace attorney ⚟
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀∙↝☆°•★•°☆↜∙
 
